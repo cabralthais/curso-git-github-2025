@@ -15,12 +15,8 @@ Confira tudo o que temos no nosso Youtube. É grátis!
 Segue o link:
 Curso git 2025
 
-
-
-
-
-
 Pessoas participantes:
 
-Thais
 
+Meu nome é Thais Cabral, estudante em 2025
+Confira tudo
